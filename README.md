@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jippolito14
 - 👀 I’m interested in Blockchain!
-- 🌱 I’m currently learning Solidity!
-- 💞️ I’m looking to collaborate on a new project!
+- 🌱 I’m currently learning seeking a job in the trading industry!
+- 💞️ I’m looking to collaborate with great minds at a great firm in downtown Chicago.
 - 📫 How to reach me ... jippolito1429@gmail.com
